@@ -1,0 +1,2 @@
+# Hotman-Eky-Fransen-Situmorang
+Saya merupakan fresh graduate dari Universitas Bangka Belitung jurusan Akuntansi dengan ipk 3.20 skala 4.00. Selain belajar sesuai dengan kurikulum yang berlaku, saya juga aktif berorganisasi dan melakukan pengabdian di tingkat jurusan, fakultas, universitas hingga nasional yang membentuk karakter  jiwa kepemimpinan, integritas dan meningkatkan kemampuan saya untuk meraih kinerja terbaik pada saat bekerja. Saya tertarik di bidang Audit, Keuangan, Perpajakan dan sistem pengendalian internal.
